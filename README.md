@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @embies
-- 👀 I’m interested in web development and design. I am a part time Graphis designer experience in
+- 👀 I’m interested in web development and design. I am a part time Graphic designer experience in
 - 🌱 Illustrator, Indesign, Photoshop and other image processing tools...
 - 🌱 I’m currently learning Joomla website development and doing website administration...
 - 💞️ I’m looking to collaborate on website administration and other projects which can take me to the next level.
